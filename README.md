@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cybercryptic
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning basics
+- 💞️ I’m looking to collaborate on learning
